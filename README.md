@@ -5,3 +5,4 @@
 - Walking in hope is a mentality shift. Instead of walking around with the belief that sin is inevitable and thereby unconquerable, we live with the expectation that sin is defeated and holiness is inevitable. -- Luke Gilkerson
 - In every encounter we either give life or we drain it; there is no neutral exchange. -- Brennan Manning
 - Not all those who wander are lost. -- J.R.R. Tolkien
+- A friend is someone with whom you dare to be yourself. -- C. Raymond Beran

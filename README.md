@@ -6,3 +6,7 @@
 - In every encounter we either give life or we drain it; there is no neutral exchange. -- Brennan Manning
 - Not all those who wander are lost. -- J.R.R. Tolkien
 - A friend is someone with whom you dare to be yourself. -- C. Raymond Beran
+- Fallacies do not cease to be fallacies because they become fashions. -- G.K. Chesterton
+- An adventure is only an inconvenience rightly considered. An inconvenience is only an adventure wrongly considered. -- G.K. Chesterton
+- You are never too old to set another goal or to dream a new dream. -- C.S. Lewis
+- I have found a desire within myself that no experience in this world can satisfy; the most probable explanation is that I was made for another world. -- C.S. Lewis

@@ -10,3 +10,4 @@
 - An adventure is only an inconvenience rightly considered. An inconvenience is only an adventure wrongly considered. -- G.K. Chesterton
 - You are never too old to set another goal or to dream a new dream. -- C.S. Lewis
 - I have found a desire within myself that no experience in this world can satisfy; the most probable explanation is that I was made for another world. -- C.S. Lewis
+- One day, when he wipes away every tear, our faces will glisten more brilliantly than if we never would have cried. -- David Mathis

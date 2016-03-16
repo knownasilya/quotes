@@ -12,3 +12,4 @@
 - I have found a desire within myself that no experience in this world can satisfy; the most probable explanation is that I was made for another world. -- C.S. Lewis
 - One day, when he wipes away every tear, our faces will glisten more brilliantly than if we never would have cried. -- David Mathis
 - Friendship flourishes at the fountain of forgiveness. -- William A. Ward
+- Most of your unhappiness in life is due to the fact that you are listening to yourself instead of talking to yourself. -- Martyn Lloyd-Jones

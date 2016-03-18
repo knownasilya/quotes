@@ -13,3 +13,4 @@
 - One day, when he wipes away every tear, our faces will glisten more brilliantly than if we never would have cried. -- David Mathis
 - Friendship flourishes at the fountain of forgiveness. -- William A. Ward
 - Most of your unhappiness in life is due to the fact that you are listening to yourself instead of talking to yourself. -- Martyn Lloyd-Jones
+- The miracle isn't that I finished. The miracle is that I had the courage to start. -- John Bingham

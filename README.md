@@ -15,3 +15,4 @@
 - Most of your unhappiness in life is due to the fact that you are listening to yourself instead of talking to yourself. -- Martyn Lloyd-Jones
 - The miracle isn't that I finished. The miracle is that I had the courage to start. -- John Bingham
 - Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed. -- G.K. Chesterton
+- I was born for no other end but to repent. -- Tertullian

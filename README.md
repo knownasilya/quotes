@@ -18,3 +18,4 @@
 - I was born for no other end but to repent. -- Tertullian
 - If you never risk standing for Christ, you will never discover the faithfulness of God’s promises. -- James MacDonald
 - We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us. -- C.S. Lewis
+- When we behold the disfigurement of the Son of God, when we find ourselves appalled by His marred appearance, we need to reckon afresh that it is upon ourselves we gaze, for He stood in our place. -- John Calvin

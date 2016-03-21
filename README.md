@@ -17,3 +17,4 @@
 - Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed. -- G.K. Chesterton
 - I was born for no other end but to repent. -- Tertullian
 - If you never risk standing for Christ, you will never discover the faithfulness of God’s promises. -- James MacDonald
+- We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us. -- C.S. Lewis

@@ -21,3 +21,4 @@
 - When we behold the disfigurement of the Son of God, when we find ourselves appalled by His marred appearance, we need to reckon afresh that it is upon ourselves we gaze, for He stood in our place. -- John Calvin
 - Accountability is not a last resort; it is a lifestyle. -- Luke Gilkerson
 - Fears get pummeled when we speak them to one person. Out loud. -- Gary Molander
+- A god who let us prove his existence would be an idol. -- Dietrich Bonhoeffer

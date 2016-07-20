@@ -24,3 +24,4 @@
 - A god who let us prove his existence would be an idol. -- Dietrich Bonhoeffer
 - Although my memory's fading, I remember two things very clearly: I am a great sinner and Christ is a great Savior. -- John Newton
 - He is no fool who gives what he cannot keep to gain that which he cannot lose. -- James Elliot
+- Our culture has filled our heads but emptied our hearts, stuffed our wallets but starved our wonder. -- Peter Kreeft

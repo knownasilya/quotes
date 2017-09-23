@@ -26,3 +26,4 @@
 - He is no fool who gives what he cannot keep to gain that which he cannot lose. -- James Elliot
 - Our culture has filled our heads but emptied our hearts, stuffed our wallets but starved our wonder. -- Peter Kreeft
 - You can have goals in life so out of sync with the Bible that you find the Bible boring. -- John Piper
+- You never know how much you really believe anything until its truth or falsehood becomes a matter of life and death to you. -- C.S. Lewis
